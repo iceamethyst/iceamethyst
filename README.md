@@ -1,6 +1,7 @@
 - 💜 Hi, I’m @iceamethyst!
 - 💜 I’m interested in many different hobbies and love seeing how things work!
 - 💜 I’m currently a student working towards a happy lifestyle.
+- 💜 Please credit me where credit is due!
 - 💜 I hope you have a nice day!
 
 <!---
